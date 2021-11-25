@@ -1,1 +1,0 @@
-Name: Franklin Payá Quiles
